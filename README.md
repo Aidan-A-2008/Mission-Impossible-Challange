@@ -51,7 +51,7 @@ If you have any feedback, please reach out to me at contact@aidanarredondo.com
 
 ## Authors
 
-- [@Aidan-A-2008](https://www.github.com/Aidan-A-2008)
+- [@Aidan-A-2008](https://www.github.com/Aidan-A-2008) | [Website](https://www.aidanarredondo.com)
 
 
 - [@16001891](https://www.github.com/16001891)
