@@ -46,8 +46,7 @@ Playing the Game: Answer with one of the following
 
 ## Feedback
 
-If you have any feedback, please reach out to me at contact@aidanarredondo.com
-
+If you have any feedback, please reach out to me at via the contact page on my website. https://www.aidanarredondo.com
 
 ## Authors
 
